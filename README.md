@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @XiaPlayz
-- 👀 I’m interested in Same Age Pinay and Techy Pinays
+- 🥔 I'm a unique Potato 🥔
+- 👀 I’m interested in Coding, Technology and Techy Pipols
 - 🌱 I’m currently learning Basic Python
 - 📫 How to reach me nchphotography@outlook.com
 
